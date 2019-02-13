@@ -1,2 +1,3 @@
 # hello-world
-just another day
+begin a new day with a happy face.
+HAVE A NYC DAY PEEPS!
